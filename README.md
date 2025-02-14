@@ -50,7 +50,7 @@ kazde cwiczenie 2min, 4 rundy, po 4 rundzie 2min odpoczynku
 
 [cwiczenia rozciagajace](https://youtu.be/DwbG3J-ADD8?t=1710)
 
-## 4. Intense circuit
+## 4. Intense circuit - Boredom Demolisher
 
 * [Intense circuit](https://youtu.be/uZI-cFUujUI?t=62)
 
@@ -93,3 +93,44 @@ Part 2
 9. [PUSH UPS](https://youtu.be/XPtMlQ0Ed8A?t=521) - 10x - powoli tak gleboko jak potrafisz, plecy proste
 10. [ROW](https://youtu.be/XPtMlQ0Ed8A?t=584) - 1min - nogi lekko zgiete, postawa pochylona, proste plecy, pociagasz przekrecajac nadgarstki o 90stopni
 11. [1PUMP BURPEE](https://youtu.be/XPtMlQ0Ed8A?t=646) - 1min
+
+## 6. When times are rough, press on
+
+* [BEST Kettlebell Workout To Build Muscle](https://youtu.be/z_Fbl2ym7RE?t=254)
+
+Workout (2 Rounds)  
+1. Bodyweight Pushup, 8x
+2. Goblet Squats, 8x
+3. Press, 8x per side
+4. Forward Lunge, 8x per side
+5. Hang Row, 8x per side
+6. Atomic Pushups, 8x
+7. 1 minute rest
+  
+Finisher: (24kg, 5 sets)
+
+8. Atomic Pushups (Until failure)
+9. No pump Burpees, 10x
+
+## 7. Snatch like an Egyptian
+
+* [Snatch like an Egyptian](https://www.youtube.com/watch?v=lOKzv-7bsXM)
+
+Part 1: Single kettlebell, ascending ladder, descending reps (24kg to 32kg)  
+
+1. Strict Presses (5x L)
+2. Clean & Jerks (5x L)
+3. Goblet Squats (5x)
+4. Half snatches (5x L)
+5. Repeat on Right side, rest
+6. Increase weight, decrease reps each round
+
+Part 1: Double kettlebells (24kg, 5 sets)  
+
+1. Presses (3x)
+2. Clean & jerks (3x)
+3. Front Rack squats (3x)
+4. Half snatches (3x)
+5. Rest, repeat 4x
+
+Finisher (Combo of both Part 1 & 2: see video)
