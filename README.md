@@ -212,3 +212,13 @@ Workout Protocol (4 rounds) - 20min - 24kg
 3. [Unosisz pod brode wysoko](https://youtu.be/ZbATJRgpA7Q?t=128) - 10x
 4. [Pochylasz sie, plecy proste, ugiete nogi i podciagasz pod brzych](https://youtu.be/ZbATJRgpA7Q?t=147) - 10x
 5. [Opuszczasz na ziemie i ciagniesz na prostych rekach w gore](https://youtu.be/ZbATJRgpA7Q?t=160) - 10x
+
+## 10. banish the fat
+
+Workout Protocol (EMOM, 5 rounds)
+
+1. 5x [PRESS](https://youtu.be/I1Ec9x9JsVU?t=28)/Side
+2. 6x [DEADLIFT](https://youtu.be/I1Ec9x9JsVU?t=89)/Side
+3. 3x [CLUSTER](https://youtu.be/I1Ec9x9JsVU?t=150)/Side - CLEAN + SQUAT + PRESS
+
+Rest (1 min)  
